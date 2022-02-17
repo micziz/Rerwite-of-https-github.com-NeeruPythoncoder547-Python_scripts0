@@ -1,0 +1,3 @@
+# Rerwite of https://github.com/NeeruPythoncoder547/Python_scripts0
+
+i was board, do what you want with this...
